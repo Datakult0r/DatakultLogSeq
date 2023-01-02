@@ -1,0 +1,4 @@
+- ((Ray Kurzweil)) is an American inventor and futurist known for his work on artificial intelligence and predictions about the future of technology. He is the author of several books, including "The Singularity Is Near" and "The Age of Spiritual Machines," in which he discusses the exponential growth of technology and its potential to fundamentally transform society. Kurzweil is a director of engineering at Google, where he leads the development of machine learning algorithms. He is also a successful entrepreneur, having founded several companies in the field of artificial intelligence and pattern recognition.\
+- ![MARXIST_TRANSHUMANISM_OR_TRANSHUMANIST_M.pdf](../assets/MARXIST_TRANSHUMANISM_OR_TRANSHUMANIST_M_1672561480702_0.pdf)
+- {{embed [[https://www.academia.edu/41823654/MARXIST_TRANSHUMANISM_OR_TRANSHUMANIST_MARXISM_Call_for_Papers?auto=download&email_work_card=download-paper]]}}
+-

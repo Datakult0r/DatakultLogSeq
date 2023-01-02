@@ -1,0 +1,3 @@
+- I was looking at this amazing market research tool called. [AIble](https://www.aible.com/). That was already aimed specifically at vendors. So wait, basically, I would get the right Development teams in AI. And with this I could explore really easily where are the business opportunities and shift and iterate really fast. Lead scoring and everything,
+- This came about after I saw, that Digital Knights was reaping all of its juice from [CBS insights](https://www.cbinsights.com) CBS insights.
+- So I started looking at what was out there
